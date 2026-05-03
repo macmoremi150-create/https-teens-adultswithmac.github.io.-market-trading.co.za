@@ -1,0 +1,2 @@
+# https-teens-adultswithmac.github.io.-market-trading.co.za
+Good day my fellow teens &amp; adults with Mac,I'm 17+ years old from Northern cape where teens are more interested in learning the market of trading due to high unemployment rate in our south African government. Learning JSE and sharing what actually makes sense.Instead of buying friends or waste products,you buy tiny pieces like MTN,Shoprite &amp; FNB 
